@@ -1,9 +1,12 @@
 # free
-# onlne
+# online
 # radio
 # techno
 # electro
 # trance
-# best
+# best music
 # new music
 # listen
+# best trance
+# best techno
+# hardcore
